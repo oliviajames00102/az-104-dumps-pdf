@@ -5,8 +5,6 @@
 
 If you are having trouble passing Microsoft AZ-104 exam Material, you are in the right place. This article aims to highlight the advantages of choosing Microsoft [**AZ-104 exam materials**](https://www.passexam4sure.com/microsoft/az-104-dumps.html) by Passexam4sure.com. Microsoft AZ-104 exam Material provided by Passexam4sure.com have been carefully edited to match previous exam materials from Microsoft. You will also be happy to know that you can get a great 30% discount on Microsoft AZ-104 exam materials when you choose Passexam4sure.com.
 
-![1706785789574 copy](https://github.com/oliviajames00102/az-104-dumps-pdf/assets/114924086/0782b255-61b0-4302-8753-3f6b60335168)
-
 
 **Instant Download:** https://www.passexam4sure.com/microsoft/az-104-dumps.html
  
